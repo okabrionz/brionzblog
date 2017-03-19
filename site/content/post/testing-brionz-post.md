@@ -8,8 +8,10 @@ description: >-
   practices. Proactively recaptiualize alternative ROI whereas ubiquitous
   opportunities. Globally fashion progressive portals for installed base
   vortals.
-image: /dist/I need 3 Hours to solve spider game.png
+image: /dist/20160623_sensadam_webset1_066.jpg
 ---
+
+![bRionZ Test Post](/dist/a3d286f5ba6a3749a7a3497a_1920.jpg)
 
 Interactively scale economically sound interfaces and turnkey e-tailers. Continually negotiate interactive partnerships and emerging results. Uniquely optimize cross functional deliverables rather than long-term high-impact best practices. Proactively recaptiualize alternative ROI whereas ubiquitous opportunities. Globally fashion progressive portals for installed base vortals.
 
