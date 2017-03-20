@@ -8,10 +8,10 @@ description: >-
   practices. Proactively recaptiualize alternative ROI whereas ubiquitous
   opportunities. Globally fashion progressive portals for installed base
   vortals.
-image: /dist/20160623_sensadam_webset1_066.jpg
+image: /dist/introducting.png
 ---
 
-![bRionZ Test Post](/dist/a3d286f5ba6a3749a7a3497a_1920.jpg)
+![null](/dist/Paket-Web-Hosting-Bisnis.jpg)
 
 Interactively scale economically sound interfaces and turnkey e-tailers. Continually negotiate interactive partnerships and emerging results. Uniquely optimize cross functional deliverables rather than long-term high-impact best practices. Proactively recaptiualize alternative ROI whereas ubiquitous opportunities. Globally fashion progressive portals for installed base vortals.
 
